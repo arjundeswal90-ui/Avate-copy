@@ -1,1 +1,0 @@
-# Avate-copy
